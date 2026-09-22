@@ -231,4 +231,4 @@ Risk of Rain 2 is available as a full free version with all features and updates
 Don’t miss out on the action! Download **Risk of Rain 2 free** today and start your adventure!
 
 ---
-**Last updated:** 2026-09-22 00:28:51 UTC
+**Last updated:** 2026-09-22 05:43:36 UTC
